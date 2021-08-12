@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gabriel19abud
-- 👀 I’m interested in  me torna um profissonal bem sucedido e  contribuir com o meu melhor
+- 👀 I’m interested in  me torna um profissonal bem sucedido 
 - 🌱 I’m currently cursando Analise e Desenvolvimento de Sistemas
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me  gabrielabudskull@hotmail.com
